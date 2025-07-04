@@ -23,7 +23,7 @@ Full-stack Web Projects, Open Source, and Product Internships
 ### 📫 Reach Me At
 
 - Email: sargamnarang08@gmail.com  
-- LinkedIn: [Sargam Narang](https://www.linkedin.com/in/sargam-narang/)  
+- LinkedIn: [Sargam Narang](https://www.linkedin.com/in/sargam-narang-58a909298/)  
 - GitHub: [@Sargam08Narang](https://github.com/Sargam08Narang)
 
 ---
